@@ -1,0 +1,2 @@
+# Electrodomesticos-Electrocalidad
+Empresa individual.
